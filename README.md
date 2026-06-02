@@ -1,1 +1,1 @@
-system, fictive heavy, i'm a zuka fictive please do not make unsavory jokes with me as i do not like those at all, i don't normally pay much attention to things other than my dear, selective with friends, i am autistic. tone tags might be needed but not heavily
+i'm fixing this
